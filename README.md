@@ -1,2 +1,2 @@
 # zyjia.github.io
-我的个人
+我的个人主页
